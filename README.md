@@ -1,0 +1,1 @@
+# Inspiralo-idezetek projektem
